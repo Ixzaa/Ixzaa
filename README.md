@@ -79,7 +79,7 @@ I consider myself a **junior developer with strong practical skills**, fast lear
 
 ## 📫 Contact
 📧 **Email:** Ixzayarab@gmail.com  
-💼 **LinkedIn:** *(add link)*  
+💼 **LinkedIn:** www.linkedin.com/in/ixzayara-bermúdez-9ab8613a2 
 
 ---
 
